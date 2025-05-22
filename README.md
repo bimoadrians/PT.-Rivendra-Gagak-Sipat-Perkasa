@@ -1,2 +1,2 @@
-# PT.-Rivendra-Gagak-Sipat-Perkasa
+# PT. Rivendra Gagak Sipat Perkasa
 Web
